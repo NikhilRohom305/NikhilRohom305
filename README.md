@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @NikhilRohom305
-- 👀 I’m interested in coding
+- 👀 I’m interested in creativity 
 - 🌱 I’m currently learning software development
-- 💞️ I’m looking to collaborate on top Notch company pvt. LTD
+- 💞️ I’m looking to collaborate in the top Notch company pvt. LTD
 - 📫 How to reach me nikhilrohom2020@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I m interesting personality with high skilled knowledge
